@@ -209,4 +209,4 @@ Beneath a Steel Sky is available as a complete free version with all features an
 Don't miss out on the chance to experience the thrilling world of Beneath a Steel Sky. **Download it now and start your adventure!**
 
 ---
-**Last updated:** 2026-10-23 10:49:48 UTC
+**Last updated:** 2026-10-23 15:34:51 UTC
